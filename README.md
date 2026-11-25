@@ -1,2 +1,1 @@
-# teknobilim56
-.
+
